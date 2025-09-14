@@ -6,6 +6,8 @@
 - 📖 Estou no 2° ano do EM
 - 📫 Entre em contato no e-mail: gigi.araujojm@gmail.com
 
+##
+
 ### 📊 Estatísticas
 
 <div>
