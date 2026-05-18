@@ -3,7 +3,7 @@
 **`Estudante de informática`**
 
 - 👩🏻‍💻 Hoje estudo informática
-- 📖 Estou no 2° ano do EM
+- 📖 Estou no 3° ano do EM
 - 📫 Entre em contato no e-mail: gigi.araujojm@gmail.com
 
 ##
